@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SocialAnxietySucks
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning how to live life
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me, haha dont.
